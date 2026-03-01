@@ -1,3 +1,3 @@
-° ⋆ .ೃ  ♦ 𝟕 𝟕 𝟕 TAKE A CHANCE WITH CHAAAANCE BABY .ᐟ ࿔*:･
+<p style="text-align: center;">° ⋆ .ೃ  ♦ 𝟕 𝟕 𝟕 TAKE A CHANCE WITH CHAAAANCE BABY .ᐟ ࿔*:･.</p>
 
-![image](https://github.com/UNPREDICTABLE-FATE/UNPREDICTABLE-FATE/blob/45ff5a70809129405a2bc36b53b86f0c04b0a01f/Untitled50_20260226212210.png)
+<img src="https://github.com/UNPREDICTABLE-FATE/UNPREDICTABLE-FATE/blob/45ff5a70809129405a2bc36b53b86f0c04b0a01f/Untitled50_20260226212210.png" alt="Description" class="center-image">
