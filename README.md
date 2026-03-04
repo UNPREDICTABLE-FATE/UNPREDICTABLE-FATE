@@ -1,7 +1,4 @@
 <div align="center">
-
-still wip lulz
-
 <sub>
 <a href="https://unpredictable-fate.atabook.org">atabook</a> `` <a href="https://pronouns.cc/unpredictablefate">pronouns.cc</a>
 </sub>
