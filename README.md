@@ -1,6 +1,6 @@
 <div align="center">
 <sub>
-<a href="https://unpredictable-fate.atabook.org">atabook</a> `` <a href="https://pronouns.cc/unpredictablefate">pronouns.cc</a>
+<a href="https://unpredictable-fate.atabook.org">atabook</a> `` <a href="https://pronouns.cc/unpredictablefate">pronouns.cc (contains info about me, please read!)</a>
 </sub>
 
 #
