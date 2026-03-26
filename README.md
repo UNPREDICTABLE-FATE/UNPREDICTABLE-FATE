@@ -6,7 +6,7 @@
 
 #
 
-$\color{#703670}{° ⋆ .ೃ  ♦ 𝟕 𝟕 𝟕 \space TAKE \space A \space CHANCE \space WITH \space CHAAAANCE \space BABY .ᐟ \space ࿔*:･.}$
+${\textsf{\color{#703670}° ⋆ .ೃ  ♦ 𝟕 𝟕 𝟕 𝐓𝐀𝐊𝐄 𝐀 𝐂𝐇𝐀𝐍𝐂𝐄 𝐖𝐈𝐓𝐇 𝐂𝐇𝐀𝐀𝐀𝐀𝐍𝐂𝐄 𝐁𝐀𝐁𝐘 .ᐟ ࿔*:･.}}$
 
 <a href="https://hits.sh/github.com/hiopes/"><img alt="Hits" src="https://hits.sh/github.com/hiopes.svg?label=09%2F09&color=703670&labelColor=58296B"/></a>
 
