@@ -6,12 +6,10 @@
 
 #
 
-${\textsf{\color{#703670}° ⋆ .ೃ  ♦ 𝟕 𝟕 𝟕 𝐓𝐀𝐊𝐄 𝐀 𝐂𝐇𝐀𝐍𝐂𝐄 𝐖𝐈𝐓𝐇 𝐂𝐇𝐀𝐀𝐀𝐀𝐍𝐂𝐄 𝐁𝐀𝐁𝐘 .ᐟ ࿔*:･.}}$
+${\textsf{\color{#FFFFFF}“ the trick is to cover it with something louder! ” -bayani}}$
 
-<a href="https://hits.sh/github.com/hiopes/"><img alt="Hits" src="https://hits.sh/github.com/hiopes.svg?label=09%2F09&color=703670&labelColor=58296B"/></a>
-
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Playfair+Display&pause=1000&color=703670&center=true&vCenter=true&width=435&height=35&lines=@KyumiSushin+is+my+elliot+%E2%80%B93)](https://git.io/typing-svg)
+<a href="https://hits.sh/github.com/hiopes/"><img alt="Hits" src="https://hits.sh/github.com/hiopes.svg?label=09%2F09&color=000000&labelColor=FFFFFF"/></a>
 
 
-<img src="https://github.com/UNPREDICTABLE-FATE/UNPREDICTABLE-FATE/blob/45ff5a70809129405a2bc36b53b86f0c04b0a01f/Untitled50_20260226212210.png" alt="Description" width="500"/>
+<img src="https://github.com/UNPREDICTABLE-FATE/privated/blob/7532613250c950beefacee072e024c06e9c49d47/4cdae6986f044046a219555550b40bdf.jpg" alt="Description" width="1000"/>
 </div>
