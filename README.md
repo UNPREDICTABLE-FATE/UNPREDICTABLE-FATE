@@ -21,7 +21,7 @@
 
 &emsp;
 
-iwec at all times, im very sensitive when it comes to rough/tense words sometimes. if you ever come across me sitting alone, dont be afraid to cxh with me even when not disclosed, unless name says otherwise (˶˃ ᵕ ˂˶)
+iwec at all times, im very sensitive when it comes to rough/tense words and i will get defensive if you ever talk to me in that manner. if you ever come across me sitting alone, dont be afraid to cxh with me even when not disclosed, unless name says otherwise (˶˃ ᵕ ˂˶)
 
 &emsp;
 autism, anger issues & abandonment issues, selective mutism
