@@ -15,6 +15,8 @@ ${\textsf{\color{#dd6f00} ꒰ }}$ <img src="https://github.com/UNPREDICTABLE-FAT
 &emsp;
 ${\textsf{\color{#dd6f00} ƚɾαɳʂɱαʂƈ ꒰ ϝƚɱ ꒱ , σɱɳιʂҽxυαʅ , αႦɾσʂҽxυαʅ , ԃҽɱιʂҽxυαʅ , ԃҽɱιɾσɱαɳƚιƈ }}$
 
+<a href="https://pronouns.cc/@unpredictablefate">pronouns.cc ꒰ might be outdated! ꒱</a>
+
 &emsp;
 
 ${\textsf{\color{#dd6f00} ⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹ }}$
