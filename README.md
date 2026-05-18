@@ -1,9 +1,8 @@
 <div align="center">
 
-(still unfinished (〒﹏〒) i lost motivation)
 
 <img src="https://github.com/UNPREDICTABLE-FATE/UNPREDICTABLE-FATE/blob/2e183af175718b0b2767230449a0cc57acfb9ba5/Untitled190_20260518140842.png" alt="Description" width="1000"/>
-===== ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔ =====
+⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
 
 &emsp;
 
@@ -33,6 +32,6 @@ im semi/nonverbal around strangers or people i barely know so when you try to ta
 &emsp;
 dni; basic dni criteria. pro/darkshippers, zoophiles, necrophiles, racists, ableists, "ragebaiters", etc etc. however, if you are 18+ or -13 please iwc. also, if you are planning to rp with me, please w2i to do so ꒰ however, i will decline most of the time ꒱.
 
-===== ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔ ===== }}$
+===== ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔ =====
 <img src="https://github.com/UNPREDICTABLE-FATE/UNPREDICTABLE-FATE/blob/2e183af175718b0b2767230449a0cc57acfb9ba5/Untitled189_20260518135514.png" alt="Description" width="1000"/>
 </div>
