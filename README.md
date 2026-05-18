@@ -31,6 +31,9 @@ ${\textsf{\color{#dd6f00} get defensive if you ever talk to me in that manner. i
 ${\textsf{\color{#dd6f00} sitting alone, dont be afraid to cxh with me even when not disclosed, unless name }}$
 ${\textsf{\color{#dd6f00} says otherwise (˶˃ ᵕ ˂˶) }}$
 
+&emsp;
+${\textsf{\color{#dd6f00} im usually sitting around the roblox area ꒰ near bakery ꒱, outside library, or sometimes at the }}$
+${\textsf{\color{#dd6f00} crk area ꒰ near gift pile at spawn ꒱ }}$
 
 &emsp;
 ${\textsf{\color{#dd6f00} im semi/nonverbal around strangers or people i barely know so when you try to talk }}$
