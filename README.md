@@ -1,6 +1,27 @@
 <div align="center">
 
-remaking plz be patient i kind of dont have the motivation for this atm (｡ᵕ ◞ _◟)             
-here have a pic of SoyG :3
-<img src="https://github.com/UNPREDICTABLE-FATE/UNPREDICTABLE-FATE/blob/8d766e39e2d9807d3f9d9da665e07cb1a98e14a1/SoyGfacewhenemoting.webp" alt="Description" width="1000"/>
+(still unfinished (〒﹏〒) i lost motivation)
+
+<img src="https://github.com/UNPREDICTABLE-FATE/UNPREDICTABLE-FATE/blob/2e183af175718b0b2767230449a0cc57acfb9ba5/Untitled190_20260518140842.png" alt="Description" width="1000"/>
+ ===== ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔ =====
+
+&emsp;
+
+ʂԋιɳ σɾ ƈԋαɳƈҽ , ԋҽ / ƚԋҽყ
+&#32; 𓏲ּ𝄢 &#32;
+ƈԋαɳƈҽ ϝιƈƚƙιɳ ꒰ ԃσυႦʅҽʂ ԃɳιυιԃ ꒱ & ҽʅʅισƚ ყυɱҽ ! ꒰ ԋყρҽɾʂԋαɾιɳɠ ꒱
+
+&emsp;
+
+iwec , cxh freely unless name says otherwise (˶˃ ᵕ ˂˶)
+
+&emsp;
+autism, anger issues and abandonment issues ꒰ im not annoying to be with i promise! ꒱
+
+<img src="https://github.com/UNPREDICTABLE-FATE/UNPREDICTABLE-FATE/blob/2e183af175718b0b2767230449a0cc57acfb9ba5/Untitled186_20260518134002.png" alt="Description" width="500"/>
+
+&emsp;
+
+===== ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔ =====
+<img src="https://github.com/UNPREDICTABLE-FATE/UNPREDICTABLE-FATE/blob/2e183af175718b0b2767230449a0cc57acfb9ba5/Untitled189_20260518135514.png" alt="Description" width="1000"/>
 </div>
