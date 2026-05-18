@@ -1,4 +1,4 @@
-<div align="center">
+9<div align="center">
 
 
 <img src="https://github.com/UNPREDICTABLE-FATE/UNPREDICTABLE-FATE/blob/2e183af175718b0b2767230449a0cc57acfb9ba5/Untitled190_20260518140842.png" alt="Description" width="1000"/>
@@ -27,7 +27,7 @@ iwec at all times, im very sensitive when it comes to rough/tense words and i wi
 autism, anger issues & abandonment issues, selective mutism
 
 &emsp;
-im semi/nonverbal around strangers or people i barely know so when you try to talk to me expect to not get a response. also, do NOT copy or inspo my skins unless given permission, just whisper me and i will answer. do NOT cover me as well, even while im away/asleep.
+im semi/nonverbal around strangers or people i barely know so when you try to talk to me expect to not get a response. also, do NOT copy or inspo my skins unless given permission or gave credit, just whisper me and i will answer. do NOT cover me as well, even while im away/asleep.
 
 &emsp;
 dni; basic dni criteria. pro/darkshippers, zoophiles, necrophiles, racists, ableists, "ragebaiters", etc etc. however, if you are 18+ or -13 please iwc. also, if you are planning to rp with me, please w2i to do so ꒰ however, i will decline most of the time ꒱.
