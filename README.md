@@ -38,7 +38,7 @@ ${\textsf{\color{#dd6f00} says otherwise (˶˃ ᵕ ˂˶) }}$
 
 &emsp;
 ${\textsf{\color{#dd6f00} im usually sitting around the roblox area ꒰ near bakery ꒱, outside library ꒰ at the bench ꒱, or sometimes at the }}$
-${\textsf{\color{#dd6f00} crk area ꒰ near gift pile at spawn ꒱ }}$
+${\textsf{\color{#dd6f00} crk area ꒰ near gift pile at spawn ꒱ but i sit wherever a friend is of mine }}$
 
 &emsp;
 ${\textsf{\color{#dd6f00} im semi/nonverbal around strangers or people i barely know so when you try to talk }}$
