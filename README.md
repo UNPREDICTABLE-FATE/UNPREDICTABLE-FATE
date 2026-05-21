@@ -5,15 +5,15 @@
 
 &emsp;
 
-${\textsf{\color{#dd6f00} ʂԋιɳ σɾ ƈԋαɳƈҽ , ԋҽ / ƚԋҽყ , ɱιɳσɾ }}$
+${\textsf{\color{#dd6f00} ꜱʜɪɴ ᴏʀ ᴄʜᴀɴᴄᴇ , ʜᴇ / ᴛʜᴇʏ , ᴍɪɴᴏʀ }}$
 &#32; &#32;
-${\textsf{\color{#dd6f00} ƈԋαɳƈҽ ϝιƈƚƙιɳ ꒰ ԃσυႦʅҽʂ ԃɳιυιԃ ꒱ αɳԃ ҽʅʅισƚ ყυɱҽ , ԋყρҽɾʂԋαɾιɳɠ }}$
+${\textsf{\color{#dd6f00} ᴄʜᴀɴᴄᴇ ꜰɪᴄᴛᴋɪɴ ꒰ ᴅᴏᴜʙʟᴇᴅ ᴅɴɪᴜɪᴅ ꒱ ᴀɴᴅ ᴇʟʟɪᴏᴛ ʏᴜᴍᴇ , ʜʏᴘᴇʀꜱʜᴀʀɪɴɢ }}$
 
 
 &emsp;
 ${\textsf{\color{#dd6f00} ꒰ }}$ <img src="https://github.com/UNPREDICTABLE-FATE/UNPREDICTABLE-FATE/blob/8f9d301765dc07416d5ca72014887ea6d55feff8/0aa0aa9bcf8b2ee19b80920ea1a0f6ad700f0a36990a17f3f188b68e379b5caa.webp" alt="Description" width="30"/> ${\textsf{\color{#dd6f00} ᛝ }}$ <img src="https://github.com/UNPREDICTABLE-FATE/UNPREDICTABLE-FATE/blob/8f9d301765dc07416d5ca72014887ea6d55feff8/485f2d9cdb53be506ea926f7efc35dfbfeba96960713a0686d85df5d65157348.webp" alt="Description" width="30"/> ${\textsf{\color{#dd6f00} ᛝ }}$ <img src="https://github.com/UNPREDICTABLE-FATE/UNPREDICTABLE-FATE/blob/8f9d301765dc07416d5ca72014887ea6d55feff8/b19eb8bf729a1f2ab2813effbdc274686cea310b5542e6d1bce86fe7083dc19b.webp" alt="Description" width="30"/> ${\textsf{\color{#dd6f00} ᛝ }}$ <img src="https://github.com/UNPREDICTABLE-FATE/UNPREDICTABLE-FATE/blob/8f9d301765dc07416d5ca72014887ea6d55feff8/b504a39a07ea8d162a559be077d62ed1.jpg" alt="Description" width="30"/> ${\textsf{\color{#dd6f00} ᛝ }}$ <img src="https://github.com/UNPREDICTABLE-FATE/UNPREDICTABLE-FATE/blob/8f9d301765dc07416d5ca72014887ea6d55feff8/f2112f56b822c0d48cfd390aff9893ef.jpg" alt="Description" width="30"/> ${\textsf{\color{#dd6f00} ꒱ }}$
 &emsp;
-${\textsf{\color{#dd6f00} ƚɾαɳʂɱαʂƈ ꒰ ϝƚɱ ꒱ , σɱɳιʂҽxυαʅ , αႦɾσʂҽxυαʅ , ԃҽɱιʂҽxυαʅ , ԃҽɱιɾσɱαɳƚιƈ }}$
+${\textsf{\color{#dd6f00} ᴛʀᴀɴꜱᴍᴀꜱᴄ ꒰ ꜰᴛᴍ ꒱ , ᴏᴍɴɪꜱᴇxᴜᴀʟ , ᴀʙʀᴏꜱᴇxᴜᴀʟ , ᴅᴇᴍɪꜱᴇxᴜᴀʟ , ᴅᴇᴍɪʀᴏᴍᴀɴᴛɪᴄ }}$
 
 <a href="https://pronouns.cc/@unpredictablefate">pronouns.cc ꒰ might be outdated! ꒱</a>
 
