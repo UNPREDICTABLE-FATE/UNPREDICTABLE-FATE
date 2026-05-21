@@ -17,7 +17,7 @@ ${\textsf{\color{#dd6f00} ᴛʀᴀɴꜱᴍᴀꜱᴄ ꒰ ꜰᴛᴍ ꒱ , ᴏᴍɴ
 
 <a href="https://pronouns.cc/@unpredictablefate">pronouns.cc ꒰ might be outdated! ꒱</a>
 
-<a href="https://bunnyshinju.straw.page/">strawpage! ꒰ draw something for me ‹3 /nf ꒱</a>
+<a href="https://bunnyshinju.straw.page/">strawpage! ꒰ draw something for me ‹3 /nf if you are planning to do so, whisper me your user so i can receive it faster :-3 ꒱</a>
 
 <a href="https://unpredictable-fate.atabook.org/">atabook ꒰ updated! ꒱</a>
 
