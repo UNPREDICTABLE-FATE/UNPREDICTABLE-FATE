@@ -47,7 +47,13 @@ ${\textsf{\color{#dd6f00} skins unless given permission or gave credit, just whi
 ${\textsf{\color{#dd6f00} cover me as well, even while im away/asleep. }}$
 
 ${\textsf{\color{#dd6f00} some people already have the same ears design i have on my mafi, i was the only one to do }}$
-${\textsf{\color{#dd6f00} it but now theyre multiplying :-( pls change your designs because they were taken from me first. }}$
+${\textsf{\color{#dd6f00} it but now theyre multiplying :-( pls change your designs because they were taken from }}$
+${\textsf{\color{#dd6f00} me first. }}$
+
+<img src="https://github.com/UNPREDICTABLE-FATE/UNPREDICTABLE-FATE/blob/e4cedddc5d7c3d8e3f1374924046fa64c806ab05/Screenshot_20260521_170052.jpg" alt="Description" width="300"/>
+&emsp;
+
+${\textsf{\color{#dd6f00} ꒰ ive made a previous one same to this, its only a recolor to match my old style. ꒱ }}$
 
 &emsp;
 ${\textsf{\color{#dd6f00} dni; basic dni criteria. pro/darkshippers, zoophiles, necrophiles, racists, ableists, }}$
