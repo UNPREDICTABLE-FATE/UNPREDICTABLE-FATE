@@ -46,6 +46,9 @@ ${\textsf{\color{#dd6f00} to me expect to not get a response ꒰ most of the tim
 ${\textsf{\color{#dd6f00} skins unless given permission or gave credit, just whisper me and i will answer. do NOT }}$
 ${\textsf{\color{#dd6f00} cover me as well, even while im away/asleep. }}$
 
+${\textsf{\color{#dd6f00} some people already have the same ears design i have on my mafi, i was the only one to do }}$
+${\textsf{\color{#dd6f00} it but now theyre multiplying :-( pls change your designs because they were taken from me first. }}$
+
 &emsp;
 ${\textsf{\color{#dd6f00} dni; basic dni criteria. pro/darkshippers, zoophiles, necrophiles, racists, ableists, }}$
 ${\textsf{\color{#dd6f00} "ragebaiters", etc etc. however, if you are 18+ or -13 please iwc. also, if you are }}$ 
