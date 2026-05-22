@@ -50,10 +50,12 @@ ${\textsf{\color{#dd6f00} some people already have the same ears design i have o
 ${\textsf{\color{#dd6f00} it but now theyre multiplying :-( pls change your designs because they were taken from }}$
 ${\textsf{\color{#dd6f00} me first. }}$
 
-<img src="https://github.com/UNPREDICTABLE-FATE/UNPREDICTABLE-FATE/blob/e4cedddc5d7c3d8e3f1374924046fa64c806ab05/Screenshot_20260521_170052.jpg" alt="Description" width="300"/>
+<img src="https://github.com/UNPREDICTABLE-FATE/UNPREDICTABLE-FATE/blob/d1583aed2336243fb979162226c47bb1fe0046c4/Screenshot_20260522_191912.jpg" alt="Description" width="250"/>
 &emsp;
 
-${\textsf{\color{#dd6f00} ꒰ ive made a previous one same to this, its only a recolor to match my old style. ꒱ }}$
+${\textsf{\color{#dd6f00} this skin was made back to december of last year. NO ONE else had a design like that. }}$
+${\textsf{\color{#dd6f00} im only talking about a fewer people who copied my idea and now it has spread to some }}$
+${\textsf{\color{#dd6f00} and has started doing the same as well. }}$
 
 &emsp;
 ${\textsf{\color{#dd6f00} dni; basic dni criteria. pro/darkshippers, zoophiles, necrophiles, racists, ableists, }}$
