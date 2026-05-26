@@ -46,16 +46,8 @@ ${\textsf{\color{#dd6f00} to me expect to not get a response ꒰ most of the tim
 ${\textsf{\color{#dd6f00} skins unless given permission or gave credit, just whisper me and i will answer. do NOT }}$
 ${\textsf{\color{#dd6f00} cover me as well, even while im away/asleep. }}$
 
-${\textsf{\color{#dd6f00} some people already have the same ears design i have on my mafi, i was the only one to do }}$
-${\textsf{\color{#dd6f00} it but now theyre multiplying :-( pls change your designs because they were taken from }}$
-${\textsf{\color{#dd6f00} me first. }}$
-
-<img src="https://github.com/UNPREDICTABLE-FATE/UNPREDICTABLE-FATE/blob/d1583aed2336243fb979162226c47bb1fe0046c4/Screenshot_20260522_191912.jpg" alt="Description" width="250"/>
-&emsp;
-
-${\textsf{\color{#dd6f00} this skin was made back to december of last year. NO ONE else had a design like that. }}$
-${\textsf{\color{#dd6f00} im only talking about a fewer people who copied my idea and now it has spread to some }}$
-${\textsf{\color{#dd6f00} and has started doing the same as well. }}$
+${\textsf{\color{#dd6f00} quit taking inspo already. first, it was my mafioso design and now its my fucking d3rlord3. i }}$
+${\textsf{\color{#dd6f00} KNOW who you guys are and you know damn well what the fuck youre doing. }}$
 
 &emsp;
 ${\textsf{\color{#dd6f00} dni; basic dni criteria. pro/darkshippers, zoophiles, necrophiles, racists, ableists, }}$
