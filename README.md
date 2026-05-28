@@ -21,6 +21,8 @@ ${\textsf{\color{#dd6f00} ᴛʀᴀɴꜱᴍᴀꜱᴄ ꒰ ꜰᴛᴍ ꒱ , ᴏᴍɴ
 
 <a href="https://unpredictable-fate.atabook.org/">atabook ꒰ updated! ꒱</a>
 
+<a href="https://d3rIord3.github.com/">other</a> <a href="https://mayoful.github.com/">accs!</a>
+
 &emsp;
 
 ${\textsf{\color{#dd6f00} ⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹ }}$
