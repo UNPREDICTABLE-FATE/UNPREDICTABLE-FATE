@@ -1,13 +1,13 @@
 <div align="center">
 <img src="https://github.com/UNPREDICTABLE-FATE/UNPREDICTABLE-FATE/blob/2e183af175718b0b2767230449a0cc57acfb9ba5/Untitled190_20260518140842.png" alt="Description" width="1000"/>
 
-  ${\textsf{\color{#dd6f00} ===== ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔ ===== }}$
+${\textsf{\color{#dd6f00} ===== ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔ ===== }}$
 
 &emsp;
 
 ${\textsf{\color{#dd6f00} ꜱʜɪɴ ᴏʀ ᴄʜᴀɴᴄᴇ , ʜᴇ / ᴛʜᴇʏ , ᴍɪɴᴏʀ }}$
-&#32; &#32;
-${\textsf{\color{#dd6f00} ᴄʜᴀɴᴄᴇ ꜰɪᴄᴛᴋɪɴ ꒰ ᴅᴏᴜʙʟᴇꜱ ᴅɴɪᴜɪᴅ ꒱ ᴀɴᴅ ᴇʟʟɪᴏᴛ ʏᴜᴍᴇ , ʜʏᴘᴇʀꜱʜᴀʀɪɴɢ }}$
+   
+${\textsf{\color{#dd6f00} ᴄʜᴀɴᴄᴇ ꜰɪᴄᴛᴋɪɴ ꒰ ᴅᴏᴜʙʟᴇꜱ ᴅɴɪᴜɪᴅ ꒱ ᴀɴᴅ ᴇʟʟɪᴏᴛ ʏᴜᴍᴇ , ɴᴏɴ-ꜱʜᴀʀɪɴɢ }}$
 
 
 &emsp;
