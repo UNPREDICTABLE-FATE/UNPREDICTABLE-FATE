@@ -48,8 +48,16 @@ ${\textsf{\color{#dd6f00} to me expect to not get a response ꒰ most of the tim
 ${\textsf{\color{#dd6f00} skins unless given permission or gave credit, just whisper me and i will answer. do NOT }}$
 ${\textsf{\color{#dd6f00} cover me as well, even while im away/asleep. }}$
 
-${\textsf{\color{#dd6f00} quit taking inspo already. first, it was my mafioso design and now its my fucking d3rlord3. i }}$
-${\textsf{\color{#dd6f00} KNOW who you guys are and you know damn well what the fuck youre doing. }}$
+${\textsf{\color{#dd6f00} ive been recently informed that someone has COPIED a skin specially made for a friend of }}$
+${\textsf{\color{#dd6f00} mine, }}$ <a href=https://github.com/SONNELLINOENTHUSIAST>@SONNELLINOENTHUSIAST</a>
+
+&emsp;
+<img src="https://github.com/UNPREDICTABLE-FATE/UNPREDICTABLE-FATE/blob/5e54e0896ec3a04577781d4109eadeb250fe57d7/Screenshot_20260601_141007.jpg" alt="Description" width="250">
+&emsp;
+${\textsf{\color{#dd6f00} the person that copied it is seen sitting/lurking around spanish/portuguese server, }}$
+${\textsf{\color{#dd6f00} although i am not sure if it was safe or 18+. if you see them around, please chat me on }}$
+${\textsf{\color{#dd6f00} discord. my dms are open and i am mostly active 24/7. }}$
+
 
 &emsp;
 ${\textsf{\color{#dd6f00} dni; basic dni criteria. pro/darkshippers, zoophiles, necrophiles, racists, ableists, }}$
