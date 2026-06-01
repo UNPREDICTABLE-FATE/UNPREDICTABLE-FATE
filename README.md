@@ -52,12 +52,12 @@ ${\textsf{\color{#dd6f00} ive been recently informed that someone has COPIED a s
 ${\textsf{\color{#dd6f00} mine, }}$ <a href=https://github.com/SONNELLINOENTHUSIAST>@SONNELLINOENTHUSIAST</a>
 
 &emsp;
-<img src="https://github.com/UNPREDICTABLE-FATE/UNPREDICTABLE-FATE/blob/5e54e0896ec3a04577781d4109eadeb250fe57d7/Screenshot_20260601_141007.jpg" alt="Description" width="250">
+<img src="https://github.com/UNPREDICTABLE-FATE/UNPREDICTABLE-FATE/blob/5e54e0896ec3a04577781d4109eadeb250fe57d7/Screenshot_20260601_141007.jpg" alt="Description" width="250"> ${\textsf{\color{#dd6f00} <--- for reference }}$
 &emsp;
 ${\textsf{\color{#dd6f00} the person that copied it is seen sitting/lurking around spanish/portuguese server, }}$
 ${\textsf{\color{#dd6f00} although i am not sure if it was safe or 18+. if you see them around, please chat me on }}$
 ${\textsf{\color{#dd6f00} discord. my dms are open and i am mostly active 24/7. }}$
-
+${\textsf{\color{#dd6f00} if ever, note that do not harass this person at all costs, please! thank you. }}$
 
 &emsp;
 ${\textsf{\color{#dd6f00} dni; basic dni criteria. pro/darkshippers, zoophiles, necrophiles, racists, ableists, }}$
