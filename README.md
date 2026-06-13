@@ -21,7 +21,9 @@ ${\textsf{\color{#dd6f00} ᴛʀᴀɴꜱᴍᴀꜱᴄ ꒰ ꜰᴛᴍ ꒱ , ᴏᴍɴ
 
 <a href="https://unpredictable-fate.atabook.org/">atabook ꒰ updated! ꒱</a>
 
-<a href="https://github.com/d3rIord3">other</a> <a href="https://github.com/mayoful">accs</a> <a href="https://github.com/EIIiot-BuiIder">!</a>
+<a href="https://github.com/d3rIord3">d3rlord3</a> <a href="https://github.com/mayoful">mayoful</a> <a href="https://github.com/EIIiot-BuiIder">ellie</a> <a href="https://github.com/UNPREDICTABLE-FATE">unpredictable-fate</a>
+
+${\textsf{\color{#dd6f00} these are my ONLY placeholder accs! }}$
 
 &emsp;
 
